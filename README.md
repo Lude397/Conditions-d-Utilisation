@@ -31,6 +31,4 @@ Nous nous réservons le droit de modifier ces conditions. Les utilisateurs en se
 ## 6. Contact
 Pour toute question relative à ces conditions au +242 05 361 4127
 
-*Dernière mise à jour : octobre 2025
-
-
+Dernière mise à jour : octobre 2025
